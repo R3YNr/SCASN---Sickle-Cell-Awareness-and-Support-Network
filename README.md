@@ -1,2 +1,2 @@
 # scasn
-trial
+NGO For Sickle cell Awareness and Support Network
